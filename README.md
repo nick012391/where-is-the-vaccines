@@ -1,0 +1,2 @@
+# where-is-the-vaccines
+Many people are hungry now because of a widespread disease in our country. Is there a cure for a virus that has yet to be discovered and that our presidents who work in high government are helping but not enough with grandparents without  no fight for their body can tell when the world war will end.  so I only ask for one.  we will pray all day long to love our families while we have time so lord save us the virus from spreading virus
